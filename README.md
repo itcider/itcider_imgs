@@ -9,3 +9,5 @@ under itcider image license<br>
 재배포 재판매 불가<br>
 수정 불가<br>
 악의적 사용 불가<br>
+
+https://itcider.com/1079
